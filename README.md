@@ -1,1 +1,0 @@
-# Swistronik_task
